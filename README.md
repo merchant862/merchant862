@@ -72,7 +72,7 @@
 
   You can view my resume here:
 
-  [📥 View Resume](https://drive.google.com/file/d/1uLnAUz01NhIhltn5Fa_d5JNXS9qf0UAd/view?usp=sharing)
+  [📥 View Resume](https://drive.google.com/file/d/1GfJ-amEumfqGOaqVNRVPPzLh-WIXGNlr/view?usp=drive_link)
 
   ---
 
